@@ -5,4 +5,4 @@
 - 💬 I wonder if I will pursue my career in sports.
 - 📫 How to contact me: Via Instagram: @018_rafao
 - 😄 Pronouns: He, Da Lala
-- ⚡ Fun fact: I’M FROM LALA.
+- ⚡ Fun fact: I’M DA LALA.
